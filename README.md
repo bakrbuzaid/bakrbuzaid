@@ -42,7 +42,7 @@
 
 ## 🌍 Connect with Me
 
-[![LinkedIn](https://www.linkedin.com/in/abubaker-elsedig-abuzaid-5b9742294)
+[![LinkedIn][(https://www.linkedin.com/in/abubaker-elsedig-abuzaid-5b9742294)](https://www.linkedin.com/in/abubaker-elsedig-abuzaid-5b9742294)
 ثث
 ث
 
